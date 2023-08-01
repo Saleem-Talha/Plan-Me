@@ -1,4 +1,5 @@
-![download](https://github.com/Saleem-Talha/Harmoni-Hub/assets/121040503/b8081aa6-4266-4ae5-8186-2773d5d723e4)
+![Plan Me](https://github.com/Saleem-Talha/Plan-Me/assets/121040503/cd59c905-979a-4f64-ab80-b0637b29dc02)
+
 
 
 # Plan Me
